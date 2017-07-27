@@ -1,4 +1,4 @@
-### Clash Royale Hack
+### Clash Royale Gems Hack
 
 #### About
 ---
